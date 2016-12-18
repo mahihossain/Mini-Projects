@@ -1,1 +1,1 @@
-Starting git and github and also some new projects.... ;)
+Mini Project and project ideas
